@@ -1,6 +1,6 @@
 # புகழேந்திப் புலவர் (Pugazhendi or Pukaḻēnti Pulavar).
 
-Public Domain Works by புகழேந்திப் புலவர் (Pugazhendi or Pukaḻēnti Pulavar) (?-?).
+Public Domain Works by புகழேந்திப் புலவர் (Pugazhendi, புகழந்தி, or Pukaḻēnti Pulavar) (?-?).
 
 ## அல்லியரசாணி மாலை.
 
