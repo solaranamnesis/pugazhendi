@@ -4,7 +4,7 @@ Public Domain Works by புகழேந்திப் புலவர் (Pug
 
 ## அல்லியரசாணி மாலை. (Alliyaracāṇi mālai.)
 
-Tamil - Plain Text  
+[Tamil - Plain Text](alliyaracani-malai/full-text-tamil.md)  
 Tamil - PDF | Biolinum | Atkinson | Cursive | Aurical  
 English - Plain Text  
 English - PDF | Biolinum | Atkinson | Cursive | Aurical
