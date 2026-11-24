@@ -2,7 +2,7 @@
 
 Public Domain Works by புகழேந்திப் புலவர் (Pugazhendi, புகழந்தி, or Pukaḻēnti Pulavar) (?-?).
 
-## அல்லியரசாணி மாலை.
+## அல்லியரசாணி மாலை. (Alliyaracāṇi mālai.)
 
 Tamil - Plain Text  
 Tamil - PDF | Biolinum | Atkinson | Cursive | Aurical  
